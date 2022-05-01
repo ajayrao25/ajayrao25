@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ajayrao25
+- 🌱 I’m currently working as Assistant Manager (Civil) at Coal India Ltd. (Maharatna CPSE Govt of India) 
